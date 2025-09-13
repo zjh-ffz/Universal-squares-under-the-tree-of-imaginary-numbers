@@ -8,3 +8,5 @@ QQ Group 1: https://qm.qq.com/q/BuBN6qBlpC
 QQ Group 2: 511672157 
 QQ Group 3: https://qm.qq.com/q/yZ5kdkelSE 
 QQ Group 4: https://qm.qq.com/q/pAtjFZXQGI
+QQ Group 5:
+https://qm.qq.com/q/g65mKUJkdi
