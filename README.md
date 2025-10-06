@@ -4,10 +4,10 @@ The creators of this modpack are:
 
 This modpack has not yet been officially released, so please stay tuned.
 Note: If downloading here is slow, please join one of our QQ groups to download. 
-QQ Group 1: https://qm.qq.com/q/BuBN6qBlpC 
-QQ Group 2: 511672157 
-QQ Group 3: https://qm.qq.com/q/yZ5kdkelSE 
-QQ Group 4: https://qm.qq.com/q/pAtjFZXQGI
-QQ Group 5:
+🐧 Group 1: https://qm.qq.com/q/BuBN6qBlpC 
+🐧 Group 2: 511672157 
+🐧 Group 3: https://qm.qq.com/q/yZ5kdkelSE 
+🐧 Group 4: https://qm.qq.com/q/pAtjFZXQGI
+🐧 Group 5:
 https://qm.qq.com/q/g65mKUJkdi
-**[ZH-cn](https://github.com/zjh-ffz/Universal-squares-under-the-tree-of-imaginary-numbers/blob/main/README_ZH-cn.md)**<br>
+**[中文](https://github.com/zjh-ffz/Universal-squares-under-the-tree-of-imaginary-numbers/blob/main/README_ZH-cn.md)**<br>
