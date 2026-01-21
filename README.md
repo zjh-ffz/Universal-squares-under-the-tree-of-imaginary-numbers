@@ -1,7 +1,10 @@
 #Universal Squareunderthe Tree ofImaginary Numbers
 Hello everyone, welcome to the domestic/international distribution site for the Multiverse Blocks under the Imaginary Tree modpack.
 The creators of this modpack are:
-
+Integration Package Initiator: @ Luo Yu Lin Chen (TachibanaHikri 
+ Crash and zzz producer: @ I'm Luoshu () Breakdown Iron Life Path and Breakdown Iron Music mod Producer: @ tanlid1 () Github/gitee Distribution: zjh-ffz (Tapetal Spore411) 
+Beng Tie 13 Yingjie mod producer: @ Yimo _ Cara () 
+Thanks to @ Bai Luobai, Bai Luobai and @ Shuihao water for jointly providing relevant materials. Also want to thank @ is a fake snake ah joint test
 This modpack has not yet been officially released, so please stay tuned.
 Note: If downloading here is slow, please join one of our QQ groups to download. 
 🐧 Group 1: https://qm.qq.com/q/BuBN6qBlpC 
