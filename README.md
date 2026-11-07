@@ -1,4 +1,6 @@
 #Universal Squareunderthe Tree ofImaginary Numbers
+A magic cube from the myriad worlds. Within it, a blank world rises. This world is shaped by you and for us, and after shaping, there is both magic and collapse. Within it, sometimes it grows as time passes, thus bringing destruction. Although everyone develops differently, this world still has the possibility of being observed and seen. Although you and I are unrelated, we still move forward all the way on this path.
+——[Observer Z] 20XX.XX.XX
 Hello everyone, welcome to the domestic/international distribution site for the Multiverse Blocks under the Imaginary Tree modpack.
 The creators of this modpack are:
 Integration Package Initiator: @ Luo Yu Lin Chen (TachibanaHikri)
